@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **environmental projects**
 
-- 📝 I regularly write articles on [CENTRODEPENSAMIENTOGECH.COM](CENTRODEPENSAMIENTOGECH.COM)
+- 📝 I regularly write articles on [CENTROSDEPENSAMIENTOGECH.COM](CENTROSDEPENSAMIENTOGECH.COM)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
